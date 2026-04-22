@@ -1,1 +1,1 @@
-# pizdez
+# cto za hernya
